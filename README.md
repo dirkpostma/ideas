@@ -1,0 +1,2 @@
+# ideas
+Some personal ideas
